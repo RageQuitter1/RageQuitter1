@@ -1,4 +1,4 @@
-Hi guys im just here to say that this account is the new account of josetzunun so yeah im tired of having to many repos so i made a new account
+#### Hi guys im just here to say that this account is the new account of josetzunun so yeah im tired of having to many repos so i made a new account
 # Why
 Why not? im getting tired of so many repos im just tired what do you expect?
 # FAQ
